@@ -1,0 +1,1 @@
+# Trex-terminado-s-n-ajuste-a-pantalla
